@@ -1,7 +1,7 @@
 # Victus Capital BD Quick Points
 
 
-We are venture capital company - Victrus Capital: 
+We are venture capital company - Victus Capital: 
 
 www.victuscapital.io
 
