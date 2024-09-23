@@ -1,8 +1,5 @@
-# Victus Capital BD Pitch
+# Victus Capital BD Quick Points
 
-Hey there, my name is Allen and I am texting you because we are interested in an investment into your project via an OTC deal.
-
-Let me give a quick intro about who we are:
 
 We are venture capital company - Victrus Capital: 
 
@@ -25,7 +22,5 @@ Our vision:
 Essentially we work like a marketing company & growth partner in one, only that we invest the funds you need in order to finance the activities.
 
 If you are interested in an OTC deal and cooperation - let’s chat and figure out when we can set up a call. 
-
-Looking forward to your reply!
 
 All the best, Allen.
